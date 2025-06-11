@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @udinJmng, you can call me ujang
-- 👀 I’m interested in Fivem Server
+- 👋 Hi, I’m @udinJmng, you can call me Dustine
+- 👀 I’m interested in Fivem Server,ReactJs and roblox studio
 
 
 i'm So fckn handsome
